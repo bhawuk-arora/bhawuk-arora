@@ -14,7 +14,7 @@ i’m just trying to become someone i’d be proud of.
 
 🌐 https://bhawukarora.app  
 💼 https://www.linkedin.com/in/bhawuk-arora  
-🐙 https://github.com/geeky-bhawuk-arora
+🐙 https://github.com/bhawuk-arora
 
 ---
 
